@@ -1,1 +1,0 @@
-# vijayibhava_for_artisans
